@@ -1,4 +1,4 @@
-### Hi there, I'm [Hemant!](https://arjunrdave6597.web.app) 👋.
+### Hi there, I'm [Arjun!](https://arjunrdave6597.web.app) 👋.
 
 <!--
 **arjun6597/arjun6597** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
